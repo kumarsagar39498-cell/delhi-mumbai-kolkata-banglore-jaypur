@@ -1,1 +1,5 @@
-# delhi-mumbai-kolkata-banglore-jaypur
+Delhi - The Capital of Change = 1 India's political and cultural heart. 2 Rapid infastructure growth with new metro lines,highways,and smart city zones. 3 Focus onn sustainable energy and green urban planning.
+Kolkata - The City of Heritage = 1 Eastern India's educational and culture hub. 2 Revival of old architecture with modern development project. 3 Expansion of metro connectivity and IT infrastructure.
+Mumbai - The Financial Poawerhouse = 1 India's economice copital and global financial center. 2 Coastal road project,metro expansion, and affordable housing initiatives. 3 A city that blends tradition with innovation.
+Banglore - The Silicon Valley of India = 1 Hub for IT, startups, and innovation. 2 Smart city projects, eco-friendly infrastructure, and tech-driven growth. 3 Focus on digital goernance and sustainable transpot.
+Jaypur - The Pink City of Progress = 1 Rich in heritage and tourism. 2 Rapid smart city transformation with modern civic management. 3 Growth in renewable energy and tourism-based industries.
